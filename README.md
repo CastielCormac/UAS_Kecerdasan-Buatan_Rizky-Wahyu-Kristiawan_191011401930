@@ -1,0 +1,1 @@
+# UAS_Kecerdasan-Buatan_Rizky-Wahyu-Kristiawan_191011401930
